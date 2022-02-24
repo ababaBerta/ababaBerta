@@ -1,1 +1,1 @@
-👋 Hi, I’m @ababa🅱️erta!
+👋 Hi, I’m 🅱️erta!
